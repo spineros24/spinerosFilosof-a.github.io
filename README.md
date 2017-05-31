@@ -1,1 +1,1 @@
-# http//spinerosFilosof-a.github.io
+# http//spinerosFilosofia.github.io
